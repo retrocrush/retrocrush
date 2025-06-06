@@ -1,2 +1,1 @@
-cr: exxcidio on twt
-![](https://i.pinimg.com/736x/02/63/e7/0263e7861d0e695d5afee1fa6d1c22e6.jpg)
+![](https://64.media.tumblr.com/55a74992b100a367f0e36843d0bd5e70/37580ed64005e26e-65/s1280x1920/65bac3f02af57655dbc891b669ff842c625bf29f.gifv)
