@@ -1,1 +1,1 @@
-![](https://64.media.tumblr.com/3b9e8693c0d731f47532245bdca85354/730c5137d4ee499f-4b/s2048x3072/7d5c9eeefd5e399a3a2a050bb054a649c8e55699.pnj)
+![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.pinterest.com%2Fpin%2Fseal-white-seal-gif--236720524157161742%2F&psig=AOvVaw2dwzLOBi1W6yHroh_AR_NR&ust=1763176505600000&source=images&cd=vfe&opi=89978449&ved=0CBUQjRxqFwoTCJCYj7zW8JADFQAAAAAdAAAAABAE)
