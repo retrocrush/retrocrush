@@ -1,4 +1,4 @@
-<img src="https://file.garden/amlJRbz-Rne7dCeO/Untitled2772_20260728182256.png" width="500" align="left">
+<img src="https://files.catbox.moe/ujwxm0.jpg" width="350" align="left">
 
 ![](https://komarev.com/ghpvc/?username=retrocrush&color=232323&label=　˚　˚　　　viewers　　　　　　)
 <table>
