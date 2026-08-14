@@ -1,5 +1,24 @@
-<img src="https://files.catbox.moe/hptwks.png" width="300" align="left">
+<img src="https://files.catbox.moe/ujwxm0.jpg" width="250" align="left">
 
-hi [fei](https://github.com/100bottlesofglue)  [toki](https://github.com/Orcapaint)  [theo](https://github.com/theothegrapelover)
+![](https://komarev.com/ghpvc/?username=retrocrush&color=232323&label=　˚　˚　　　viewers　　　　　　)
+<table>
+    <tr>
+      <td>   
+  　　　　　　　hi  im   　　　　　　　
+  </td>
+    </tr>
+  </table>
+  <br>
 
-quadruplets be like
+
+    
+ 
+  　　　　　　　![](https://pixels.crd.co/assets/images/gallery23/fb8555af.gif?v=29416114)　　[新book](https://ultimatecrush.atabook.org/)
+  
+
+
+<br>
+  <table>
+    <tr>
+      <td>   
+  　　　  　　　　cru sh
