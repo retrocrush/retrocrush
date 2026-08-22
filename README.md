@@ -1,4 +1,4 @@
-<img src="https://files.catbox.moe/oendoe.png" width="170" align="left">
+
 
 ![](https://komarev.com/ghpvc/?username=retrocrush&color=232323&label=　˚　˚　　　viewers　　　　　　)
 <table>
